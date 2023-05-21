@@ -1,0 +1,1 @@
+can you please review the following information to eliminate redundancies, and be sure to include any other terms and definitions and you think would be helpful in creating flashcards for learning this subject? 
